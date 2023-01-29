@@ -1,1 +1,0 @@
-# Game-Stone-paer-Scissor
